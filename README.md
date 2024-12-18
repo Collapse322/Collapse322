@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Collapse322
+- 👀 I’m interested in DOTO2 ARK RUST
+- 🌱 I’m currently learning C,C++,LUA,C#
+- 😄 Pronouns: BOB THE BUILDER
+- ⚡ Fun fact BEST BUILDER IN EACH GAME WHERE U ARE ABLE TO BUILD
